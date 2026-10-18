@@ -1,0 +1,2 @@
+# premium-torch-enamel-001-torch-fired-enamel-jewelry-pro
+Stop guessing why that stunning enamel piece turned out perfect one day and a disaster the next. Your torch-firing process is full of variables—temperature, hold time, layer thickness, even humidity—and without a dedicated log, you're relying on memory and luck.  This Notion template turns your chaotic bench notes into a searchable, actionable data
